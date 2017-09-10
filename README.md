@@ -1,2 +1,2 @@
 # Resume
-My Resume as of septembert 2017
+My Resume as of september 2017
